@@ -9,20 +9,6 @@ trr rtg rgr grtg rgrt
 r greg rtgrt rtg rt 
 rt hrth r rthrth rthr
 dvdf dfv dfv dffvd ds 
-dfb fgb f
-fgnfg 
-fd ghn 
-ss dvsdv
-dsv
-dsv
-dsv
-dvs
-dsv
-ds
-v
-dsv
-dsv
-sd
-dsv
-ds
-sd
+sc sdcsdc sd sdv dsfv dfv df dfbv dfb dfb fd bdb 
+d fbd dfbdfb dfb df dfb dfb dfdfb df bđ dfbdb dfb dfbdf
+d df bdfbvdf df dfbdfbd bdfb dfbdfbdfb ddf dfb df bdb dfb d bd
