@@ -12,3 +12,7 @@ dvdf dfv dfv dffvd ds
 sc sdcsdc sd sdv dsfv dfv df dfbv dfb dfb fd bdb 
 d fbd dfbdfb dfb df dfb dfb dfdfb df bđ dfbdb dfb dfbdf
 d df bdfbvdf df dfbdfbd bdfb dfbdfbdfb ddf dfb df bdb dfb d bd
+f bfgbfgb fgb fgb fgb fbf
+bg fgb bfgb fb fgb fgb fgb fgb f
+b fgb fgb fgbfgb fgb fgb fgbf gbfgb fg
+ bfgb fgb fgb fgb fgb fgb fgb fg
